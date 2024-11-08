@@ -2,7 +2,7 @@
 - 👀 I’m interested in Developing website
 - 🌱 I’m currently learning about website
 - 💞️ I’m looking to collaborate on website project
-- 📫 How to reach me instagram = @lalu_farki , email(laluhisyam03@gmail.com)
+- 📫 How to reach me instagram = @lalu_farki , email : farkilalu1@gmail.com
 - 😄 Pronouns: Farki
 - ⚡ Fun fact: 
 
